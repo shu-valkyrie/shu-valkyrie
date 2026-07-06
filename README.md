@@ -1,6 +1,7 @@
 # ${\color{#E3ACAE}SHU}$ ${\color{#E3ACAE}ITSUKI}$
 
-<img width="1000" height="462" alt="image" src="https://github.com/user-attachments/assets/4c9ee8f6-0e07-49b6-8731-8affcc929f84" />
+<img width="1000" height="462" alt="image" src="https://github.com/user-attachments/assets/dec42aae-841e-4666-8a1c-5f953794921f" />
+
 
 <details>
   <summary>Producer of:</summary>
