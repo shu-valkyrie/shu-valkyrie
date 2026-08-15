@@ -1,6 +1,8 @@
-# ${\color{#E3ACAE}SHU}$ ${\color{#E3ACAE}ITSUKI}$
+## $\color{#E3ACAE}\textsf{Girl, have you rested properly? I say this to Kagehira all the time:}$
 
-<img width="1000" height="462" alt="image" src="https://github.com/user-attachments/assets/dec42aae-841e-4666-8a1c-5f953794921f" />
+# $\color{#E3ACAE}\textsf{take care of your health.}$
+
+<img width="1000" height="462" alt="image" src="https://github.com/user-attachments/assets/63da871b-044b-431a-89b0-b8c1c130e538" />
 
 
 <details>
