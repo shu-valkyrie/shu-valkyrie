@@ -4,10 +4,10 @@
 
 
 <details>
-  <summary>Producer of:</summary>
+  <summary>Producer of (AKA my f/os ! sharing dw !!):</summary>
  
-  -  Rei Sakuma (💜)
-  -  Nozomi Madoka (🩷)
+  -  Rei Sakuma
+  -  Nozomi Madoka
   - Mayoi Ayase
   - Arashi Narukami
   - Juis  Kojika
